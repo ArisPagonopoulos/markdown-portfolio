@@ -1,1 +1,3 @@
 # Aris Pagonopoulos
+# Mathematician
+## Videogamer.
